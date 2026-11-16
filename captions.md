@@ -156,3 +156,66 @@ X: 삐뿅 사장님 인형 채우는 중 🧸
 #수능 #공감툰 #인스타툰 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
 
 X: 수험생도 아닌데 괜히 같이 떨리는 주 🐥 나만 그래요?
+
+## 11/17(화) 18:00 · 23_tarot_construction (릴스)
+상점가 끝, 가림막 뒤에서 누군가 별을 달고 있어요 ✨
+4호점 타로 점집, 11월 23일에 문을 열어요.
+#타로 #도트애니메이션 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 가림막 뒤에서 누군가 별을 달고 있어요 ✨
+4호점 타로 점집, 11.23 OPEN
+
+## 11/18(수) 10:00 · 24_suneung_eve
+수능 D-1.
+사장님들이 한마디씩 남겼어요. 오늘 밤은 푹 자요 🐥
+수능 응원 잠금화면은 프로필 링크 → 스티커 나눔에서 아직 받을 수 있어요.
+#수능 #수능응원 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 수능 D-1. 사장님들의 응원 한마디 🐥 오늘 밤은 푹 자요.
+잠금화면도 아직 받을 수 있어요 → piyo-shop.github.io/chick-stickers/
+
+## 11/19(목) 10:00 · 25_suneung_doll_open
+🧸 오늘 하루만, 병아리 오락실에 수능 응원 인형이 들어왔어요.
+뽑으면 사장님의 응원 이름표가 하나 달려 나와요.
+수험생 여러분, 오늘 정말 수고 많았어요.
+프로필 링크 → 병아리 오락실
+#수능 #수능응원 #인형뽑기 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 🧸 오늘 하루만! 병아리 오락실 수능 응원 인형
+뽑으면 사장님 응원 이름표가 달려 나와요.
+piyo-shop.github.io/chick-arcade/
+
+## 11/20(금) 10:00 · 26_suneung_doll_reel (릴스)
+어제 하루, 응원 인형이 이렇게 뽑혀 나갔어요 🧸
+수험생 여러분, 정말 수고 많았어요. 이번 주말은 푹 쉬어요.
+#수능끝 #수고했어 #인형뽑기 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 어제 하루 뽑혀 나간 응원 인형들 🧸
+수험생 여러분, 정말 수고 많았어요.
+
+## 11/21(토) 18:00 · 27_tarot_stickers
+🔮 4호점 오픈 기념, 타로 카드 미니 스티커 나눔
+병아리 상점가 오리지널 카드 12장과 뒷면까지 13종이에요.
+프로필 링크 → 스티커 나눔에서 받아 가세요.
+#다꾸스티커 #타로 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 🔮 4호점 오픈 기념 타로 카드 미니 스티커 13종 나눔
+piyo-shop.github.io/chick-stickers/
+
+## 11/22(일) 18:00 · 28_tarot_tomorrow
+가림막이 반쯤 걷혔어요.
+내일, 4호점이 문을 열어요 ✨
+#타로 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 가림막이 반쯤 걷혔어요. 내일, 4호점이 문을 열어요 ✨
+
+## 11/23(월) 18:00 · 29_tarot_open (릴스)
+🔮 4호점 타로 점집, 오늘 문 열었어요!
+삐별 사장님이 병아리 상점가 카드 세 장으로 오늘의 마음을 읽어 드려요.
+고민은 적어도 되고, 안 적어도 돼요. 하루 한 번.
+프로필 링크 → 4호점 타로 점집
+#타로 #오늘의운세 #타로카드 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 🔮 4호점 타로 점집 OPEN!
+삐별 사장님이 카드 세 장으로 오늘의 마음을 읽어 드려요. 하루 한 번.
+piyo-shop.github.io/chick-tarot/
