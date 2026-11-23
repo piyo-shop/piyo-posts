@@ -252,3 +252,12 @@ X: 병아리 상점가 카드 12장의 뜻 🔮 상점가 구석구석이 카드
 
 X: 마음이 조급하다고 했더니 삐별이 카드 세 장을 펼쳤어요 🔮 하루 한 번.
 piyo-shop.github.io/chick-tarot/
+
+## 11/28(토) 18:00 · 34_december_calendar
+🗓️ 12월 달력 배경화면 무료 나눔 (낮·밤 2종)
+크리스마스와 올해 마지막 날도 표시해 뒀어요.
+고화질 원본은 프로필 링크 → 스티커 나눔에서 받아 가세요.
+#12월달력 #배경화면 #잠금화면 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 🗓️ 12월 달력 배경화면 낮·밤 2종 나눔
+piyo-shop.github.io/chick-stickers/
