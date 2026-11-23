@@ -243,3 +243,12 @@ X: 4호점 타로 점집 사장님 삐별을 소개합니다 ✨
 
 X: 병아리 상점가 카드 12장의 뜻 🔮 상점가 구석구석이 카드가 됐어요.
 (X용 GIF: 32_tarot_card_guide/tarot_card_guide_x.gif)
+
+## 11/27(금) 10:00 · 33_tarot_reel (릴스)
+요즘 마음이 자꾸 조급해진다고 했더니, 삐별이 카드 세 장을 펼쳤어요 🔮
+고민은 적어도 되고, 안 적어도 돼요. 하루 한 번.
+프로필 링크 → 4호점 타로 점집
+#타로 #오늘의운세 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 마음이 조급하다고 했더니 삐별이 카드 세 장을 펼쳤어요 🔮 하루 한 번.
+piyo-shop.github.io/chick-tarot/
