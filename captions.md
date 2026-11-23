@@ -261,3 +261,17 @@ piyo-shop.github.io/chick-tarot/
 
 X: 🗓️ 12월 달력 배경화면 낮·밤 2종 나눔
 piyo-shop.github.io/chick-stickers/
+
+## 11/29(일) 18:00 · 35_first_snow_teaser
+12월, 상점가에 첫눈이 와요 ❄️
+내일부터 병아리 상점가도 겨울 옷으로 갈아입어요.
+#첫눈 #12월 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 12월, 상점가에 첫눈이 와요 ❄️ 내일부터 겨울 옷으로 갈아입어요.
+
+## 11/30(월) 18:00 · 36_monday_toon
+11월에 하려던 거… 다들 몇 개 했어요? 🐥
+12월도 한 달이에요.
+#공감툰 #인스타툰 #12월 #병아리상점가 #픽셀아트 #도트 #도트그림 #병아리 #귀여운그림 #pixelart #pixelartist #pixelartwork #chick #cuteart #piyoshop
+
+X: 11월에 하려던 거, 체크 하나… 🐥 괜찮아요, 12월도 한 달이에요.
